@@ -1,4 +1,4 @@
-Chapter 9: Managing Time and Productivity: Strategies for Avoiding Burnout and Maintaining Balance
+Strategies for Avoiding Burnout and Maintaining Balance
 ==================================================================================================
 
 Maintaining balance is essential for writers to avoid burnout and maintain productivity. In this chapter, we will explore strategies for managing time and productivity while also prioritizing self-care and maintaining a healthy work-life balance.

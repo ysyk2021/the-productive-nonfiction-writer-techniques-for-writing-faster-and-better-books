@@ -1,4 +1,4 @@
-Chapter 3: Planning Your Writing: Tips for Organizing Research and Notes
+Tips for Organizing Research and Notes
 ========================================================================
 
 Organizing your research and notes is an essential aspect of planning your nonfiction writing. In this chapter, we will explore tips for organizing research and notes to make the writing process more efficient and effective.

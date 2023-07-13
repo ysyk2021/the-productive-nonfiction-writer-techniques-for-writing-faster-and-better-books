@@ -1,4 +1,4 @@
-Chapter 2: Setting Writing Goals: Examples of Successful Nonfiction Writers Who Set and Achieved Writing Goals
+Examples of Successful Nonfiction Writers Who Set and Achieved Writing Goals
 ==============================================================================================================
 
 Successful nonfiction writers who set and achieved writing goals can serve as inspiration for aspiring writers. In this chapter, we will explore examples of successful nonfiction writers who set and achieved writing goals.

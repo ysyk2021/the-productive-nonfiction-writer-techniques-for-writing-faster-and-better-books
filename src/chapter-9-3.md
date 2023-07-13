@@ -1,4 +1,4 @@
-Chapter 9: Managing Time and Productivity: Tips for Staying Organized and Focused
+Tips for Staying Organized and Focused
 =================================================================================
 
 Staying organized and focused is essential for managing time and increasing productivity as a nonfiction writer. In this chapter, we will explore tips for staying organized and focused that can help you achieve your writing goals.

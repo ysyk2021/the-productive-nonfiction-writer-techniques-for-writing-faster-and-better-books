@@ -1,4 +1,4 @@
-Chapter 10: Conclusion: Final Thoughts on Techniques for Writing Faster and Better Nonfiction Books
+Final Thoughts on Techniques for Writing Faster and Better Nonfiction Books
 ===================================================================================================
 
 In this book, we have explored a variety of techniques for writing faster and better nonfiction books. From developing a consistent writing routine to overcoming writer's block, planning your writing, and collaborating with others, there are many strategies that can help you become a more productive and successful nonfiction writer.

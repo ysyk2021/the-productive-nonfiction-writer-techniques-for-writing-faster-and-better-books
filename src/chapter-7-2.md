@@ -1,4 +1,4 @@
-Chapter 7: Improving Writing Quality: Strategies for Effective Editing and Revising
+Strategies for Effective Editing and Revising
 ===================================================================================
 
 Editing and revising are essential components of improving writing quality as a nonfiction writer. In this chapter, we will explore strategies for effective editing and revising that can help you produce high-quality work.

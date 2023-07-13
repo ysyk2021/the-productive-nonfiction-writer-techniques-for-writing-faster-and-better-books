@@ -1,4 +1,4 @@
-Chapter 5: Developing a Writing Routine: Importance of Developing a Writing Routine
+Importance of Developing a Writing Routine
 ===================================================================================
 
 Developing a writing routine is an essential aspect of becoming a productive nonfiction writer. In this chapter, we will explore the importance of developing a writing routine.

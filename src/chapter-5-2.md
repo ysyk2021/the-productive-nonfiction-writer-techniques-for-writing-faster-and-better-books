@@ -1,4 +1,4 @@
-Chapter 5: Developing a Writing Routine: Techniques for Creating a Writing Routine that Works for You
+Techniques for Creating a Writing Routine that Works for You
 =====================================================================================================
 
 Developing a writing routine is crucial for becoming a productive nonfiction writer. In this chapter, we will explore techniques for creating a writing routine that works for you.

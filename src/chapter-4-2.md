@@ -1,4 +1,4 @@
-Chapter 4: Overcoming Writer's Block: Strategies for Overcoming Writer's Block
+Strategies for Overcoming Writer's Block
 ==============================================================================
 
 Writer's block can be a common and frustrating experience for nonfiction writers. In this chapter, we will explore strategies for overcoming writer's block.

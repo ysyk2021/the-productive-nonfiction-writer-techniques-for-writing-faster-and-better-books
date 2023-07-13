@@ -1,4 +1,4 @@
-Chapter 5: Developing a Writing Routine: Case Studies on Individuals Who Developed a Strong Writing Routine
+Case Studies on Individuals Who Developed a Strong Writing Routine
 ===========================================================================================================
 
 Developing a writing routine is an essential component of becoming a productive nonfiction writer. In this chapter, we will explore case studies on individuals who have developed strong writing routines.

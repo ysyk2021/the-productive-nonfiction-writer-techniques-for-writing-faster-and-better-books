@@ -1,4 +1,4 @@
-Chapter 4: Overcoming Writer's Block: Common Causes of Writer's Block
+Common Causes of Writer's Block
 =====================================================================
 
 Writer's block can be caused by a variety of factors. In this chapter, we will explore some of the most common causes of writer's block.

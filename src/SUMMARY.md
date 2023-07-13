@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Importance of productivity in nonfiction writing](chapter-1-1.md)
   - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Setting Writing Goals](chapter-2.md)
@@ -36,8 +35,5 @@
   - [Techniques for managing time and productivity](chapter-9-1.md)
   - [Strategies for avoiding burnout and maintaining balance](chapter-9-2.md)
   - [Tips for staying organized and focused](chapter-9-3.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Summary of key points](chapter-10-1.md)
-  - [Final thoughts on techniques for writing faster and better nonfiction books](chapter-10-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

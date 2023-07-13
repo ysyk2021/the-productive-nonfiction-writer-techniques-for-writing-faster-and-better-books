@@ -1,4 +1,4 @@
-Chapter 2: Setting Writing Goals: Benefits of Setting Writing Goals
+Benefits of Setting Writing Goals
 ===================================================================
 
 Setting writing goals is an essential aspect of becoming a productive nonfiction writer. In this chapter, we will explore the benefits of setting writing goals and how they can help you achieve success.

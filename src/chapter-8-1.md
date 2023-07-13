@@ -1,4 +1,4 @@
-Chapter 8: Collaborating with Others: Importance of Collaborating with Others in Nonfiction Writing
+Importance of Collaborating with Others in Nonfiction Writing
 ===================================================================================================
 
 Writing can be a solitary endeavor, but collaborating with others can bring many benefits to the nonfiction writing process. In this chapter, we will explore the importance of collaborating with others in nonfiction writing.

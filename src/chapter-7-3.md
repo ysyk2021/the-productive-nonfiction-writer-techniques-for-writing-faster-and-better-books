@@ -1,4 +1,4 @@
-Chapter 7: Improving Writing Quality: Examples of Individuals Who Improved Their Writing Quality Through Specific Techniques
+Examples of Individuals Who Improved Their Writing Quality Through Specific Techniques
 ============================================================================================================================
 
 Improving writing quality is a goal shared by many nonfiction writers. In this chapter, we will look at examples of individuals who have improved their writing quality through specific techniques.

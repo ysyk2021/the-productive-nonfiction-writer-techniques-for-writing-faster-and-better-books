@@ -1,4 +1,4 @@
-Chapter 6: Increasing Writing Speed: Tips for Improving Typing Speed and Accuracy
+Tips for Improving Typing Speed and Accuracy
 =================================================================================
 
 Typing speed and accuracy are essential components of increasing writing speed as a nonfiction writer. In this chapter, we will explore tips for improving typing speed and accuracy that can help you write faster and more efficiently.

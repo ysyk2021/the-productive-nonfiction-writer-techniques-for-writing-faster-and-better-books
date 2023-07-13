@@ -1,4 +1,4 @@
-Chapter 8: Collaborating with Others: Examples of Successful Collaborations in Nonfiction Writing
+Examples of Successful Collaborations in Nonfiction Writing
 =================================================================================================
 
 Collaborating with others can be a valuable tool for nonfiction writers. In this chapter, we will explore examples of successful collaborations in nonfiction writing.

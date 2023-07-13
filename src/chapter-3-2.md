@@ -1,4 +1,4 @@
-Chapter 3: Planning Your Writing: Outlining Strategies for Nonfiction Writers
+Outlining Strategies for Nonfiction Writers
 =============================================================================
 
 Outlining is an essential aspect of planning your nonfiction writing. In this chapter, we will explore outlining strategies for nonfiction writers.

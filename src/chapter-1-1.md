@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Importance of Productivity in Nonfiction Writing
+Importance of Productivity in Nonfiction Writing
 =========================================================================
 
 Productivity is a crucial aspect of becoming a successful nonfiction writer. In this chapter, we will explore the importance of productivity in nonfiction writing and how it can help you achieve your writing goals.

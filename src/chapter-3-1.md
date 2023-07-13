@@ -1,4 +1,4 @@
-Chapter 3: Planning Your Writing: Techniques for Planning Your Writing
+Techniques for Planning Your Writing
 ======================================================================
 
 Effective planning is an essential aspect of writing faster and better nonfiction books. In this chapter, we will explore techniques for planning your writing.

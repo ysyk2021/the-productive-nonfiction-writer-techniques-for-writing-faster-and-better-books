@@ -1,4 +1,4 @@
-Chapter 4: Overcoming Writer's Block: Techniques for Staying Motivated and Productive During Difficult Times
+Techniques for Staying Motivated and Productive During Difficult Times
 ============================================================================================================
 
 Writer's block can be a frustrating and discouraging experience for nonfiction writers. However, there are techniques that can help you stay motivated and productive during difficult times. In this chapter, we will explore these techniques.

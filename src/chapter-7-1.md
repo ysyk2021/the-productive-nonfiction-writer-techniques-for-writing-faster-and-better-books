@@ -1,4 +1,4 @@
-Chapter 7: Improving Writing Quality: Techniques for Improving Writing Quality
+Techniques for Improving Writing Quality
 ==============================================================================
 
 Improving writing quality is a goal shared by many nonfiction writers. In this chapter, we will explore techniques for improving writing quality.

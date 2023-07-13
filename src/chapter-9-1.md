@@ -1,4 +1,4 @@
-Chapter 9: Managing Time and Productivity: Techniques for Managing Time and Productivity
+Techniques for Managing Time and Productivity
 ========================================================================================
 
 Managing time and productivity is essential for becoming a productive nonfiction writer. In this chapter, we will explore techniques for managing time and productivity effectively.

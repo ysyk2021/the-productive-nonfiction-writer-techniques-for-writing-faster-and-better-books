@@ -1,4 +1,4 @@
-Chapter 6: Increasing Writing Speed: Techniques for Increasing Writing Speed
+Techniques for Increasing Writing Speed
 ============================================================================
 
 Increasing writing speed is a crucial aspect of becoming a productive nonfiction writer. In this chapter, we will explore techniques for increasing writing speed that can help you produce high-quality work in less time.

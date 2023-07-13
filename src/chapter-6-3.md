@@ -1,4 +1,4 @@
-Chapter 6: Increasing Writing Speed: Examples of Individuals Who Successfully Increased Their Writing Speed
+Examples of Individuals Who Successfully Increased Their Writing Speed
 ===========================================================================================================
 
 Learning from successful writers who have increased their writing speed can provide valuable insights into effective strategies for becoming a productive nonfiction writer. In this chapter, we will explore examples of individuals who successfully increased their writing speed.
