@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 10: Conclusion
-======================
-
 Becoming a productive nonfiction writer is a journey that requires ongoing effort and dedication. In this book, we have explored numerous techniques and strategies for writing faster and better nonfiction books. Here is a summary of the key points covered in each chapter:
 
 Summary of Key Points
