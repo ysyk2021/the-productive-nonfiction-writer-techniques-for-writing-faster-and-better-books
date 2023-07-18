@@ -12,7 +12,6 @@ With real-world examples and actionable tips, "The Productive Nonfiction Writer"
 
 So, whether you're working on a memoir, self-help book, or any other type of nonfiction project, "The Productive Nonfiction Writer" is the ultimate guide to help you achieve your writing goals. Get ready to take your writing to the next level and become a productive nonfiction writer today!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
