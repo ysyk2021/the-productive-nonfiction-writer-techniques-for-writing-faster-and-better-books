@@ -1,4 +1,4 @@
-Chapter 2: Techniques for Planning Your Writing
+Techniques for Planning Your Writing
 ===============================================
 
 In this chapter, we will explore effective techniques for planning your writing as a productive nonfiction writer. Proper planning is essential to ensure a smooth and efficient writing process. Let's dive into some helpful strategies to help you plan your writing effectively.

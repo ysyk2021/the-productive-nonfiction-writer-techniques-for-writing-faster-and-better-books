@@ -1,4 +1,4 @@
-Chapter 7: Importance of Collaborating with Others in Nonfiction Writing
+Importance of Collaborating with Others in Nonfiction Writing
 ========================================================================
 
 Collaboration is a key factor in the success of nonfiction writing projects. By partnering with others, authors can tap into a wealth of knowledge, skills, and perspectives that enhance their work. In this chapter, we will explore the importance of collaborating with others in nonfiction writing and the benefits it brings to the writing process and the final product.

@@ -1,4 +1,4 @@
-Chapter 11: Outlining Strategies for Nonfiction Writers
+Outlining Strategies for Nonfiction Writers
 =======================================================
 
 In this chapter, we will explore effective outlining strategies for nonfiction writers. Outlining is a fundamental step in the writing process that helps you structure your ideas, organize your content, and maintain focus throughout your nonfiction book. Let's delve into some helpful strategies to create thorough outlines for your writing projects.

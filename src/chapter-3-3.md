@@ -1,4 +1,4 @@
-Chapter 10: Tips for Organizing Research and Notes
+Tips for Organizing Research and Notes
 ==================================================
 
 In this chapter, we will explore effective tips for organizing research and notes as a productive nonfiction writer. Proper organization of research material is crucial for streamlining your writing process, facilitating easy reference, and ensuring accuracy in your work. Let's delve into some helpful strategies to organize your research and notes effectively.

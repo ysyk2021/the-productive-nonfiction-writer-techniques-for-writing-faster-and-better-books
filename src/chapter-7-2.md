@@ -1,4 +1,4 @@
-Chapter 13: Strategies for Effective Editing and Revising
+Strategies for Effective Editing and Revising
 =========================================================
 
 Editing and revising are essential steps in the nonfiction writing process. They allow you to refine your content, improve clarity, and enhance overall quality. In this chapter, we will explore strategies and techniques that can help you effectively edit and revise your nonfiction writing. By implementing these strategies, you can ensure that your work is polished, coherent, and engaging.

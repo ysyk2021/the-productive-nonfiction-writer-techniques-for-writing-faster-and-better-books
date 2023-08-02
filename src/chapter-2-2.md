@@ -1,4 +1,4 @@
-Chapter 9: Techniques for Setting Achievable Writing Goals
+Techniques for Setting Achievable Writing Goals
 ==========================================================
 
 Setting achievable writing goals is a crucial aspect of becoming a productive nonfiction writer. In this chapter, we will explore various techniques that can help you set realistic and attainable goals to enhance your writing process. By utilizing these techniques, you can establish a solid foundation for success in your nonfiction writing journey.

@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book's Contents
+Overview of the Book's Contents
 ==========================================
 
 Welcome to "The Productive Nonfiction Writer: Techniques for Writing Faster and Better Books." In this chapter, we will provide an overview of the contents covered in this book.

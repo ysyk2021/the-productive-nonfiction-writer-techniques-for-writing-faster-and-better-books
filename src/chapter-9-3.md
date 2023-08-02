@@ -1,4 +1,4 @@
-Chapter 6: Tips for Staying Organized and Focused
+Tips for Staying Organized and Focused
 =================================================
 
 In this chapter, we will explore practical tips for staying organized and maintaining focus as a nonfiction writer. Effective organization and focused work are essential for maximizing productivity and achieving your writing goals. Let's delve into some valuable techniques to help you stay organized and focused throughout your writing process.

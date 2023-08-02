@@ -1,4 +1,4 @@
-Chapter 12: Techniques for Staying Motivated and Productive During Difficult Times
+Techniques for Staying Motivated and Productive During Difficult Times
 ==================================================================================
 
 In the challenging journey of nonfiction writing, there are bound to be times when you face obstacles, self-doubt, or external difficulties that hinder your motivation and productivity. However, by employing specific techniques, you can navigate these tough periods and maintain your focus and productivity. In this chapter, we will explore various strategies to help you stay motivated and productive during difficult times.

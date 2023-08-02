@@ -1,4 +1,4 @@
-Chapter 12: Techniques for Creating a Writing Routine That Works for You
+Techniques for Creating a Writing Routine That Works for You
 ========================================================================
 
 A productive nonfiction writer understands the importance of establishing a consistent writing routine. However, finding a routine that works for you can be a personal journey. In this chapter, we will explore various techniques to help you create a writing routine that suits your needs and maximizes your productivity. By incorporating these strategies into your routine, you can enhance your writing process and achieve your goals more efficiently.

@@ -1,4 +1,4 @@
-Chapter 7: Common Causes of Writer's Block
+Common Causes of Writer's Block
 ==========================================
 
 Writer's block is a common challenge that many nonfiction writers face at some point in their writing journey. It can be frustrating and hinder your progress. Understanding the common causes of writer's block can help you identify and overcome this obstacle more effectively. In this chapter, we will explore some of the key factors that contribute to writer's block and provide strategies for overcoming them.

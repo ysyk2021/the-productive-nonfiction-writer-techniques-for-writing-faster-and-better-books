@@ -1,4 +1,4 @@
-Chapter 8: Strategies for Effective Collaboration with Editors, Designers, and Other Professionals
+Strategies for Effective Collaboration with Editors, Designers, and Other Professionals
 ==================================================================================================
 
 Collaboration with editors, designers, and other professionals is crucial for nonfiction writers to enhance the quality and impact of their books. In this chapter, we will explore effective strategies for fostering collaboration and maximizing the collective skills and expertise of your team. Let's dive in and discover how to collaborate seamlessly with these professionals.

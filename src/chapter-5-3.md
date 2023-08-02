@@ -1,4 +1,4 @@
-Chapter 10: Case Studies on Individuals Who Developed a Strong Writing Routine
+Case Studies on Individuals Who Developed a Strong Writing Routine
 ==============================================================================
 
 Developing a strong writing routine is an effective strategy for enhancing productivity and improving the quality of your nonfiction writing. In this chapter, we will examine case studies of individuals who have successfully established and maintained a robust writing routine. By exploring their experiences, we can gain valuable insights into how to create our own productive writing habits.

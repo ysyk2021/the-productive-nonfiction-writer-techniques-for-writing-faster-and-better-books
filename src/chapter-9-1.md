@@ -1,4 +1,4 @@
-Chapter 3: Techniques for Managing Time and Productivity
+Techniques for Managing Time and Productivity
 ========================================================
 
 In this chapter, we will explore effective techniques for managing time and boosting productivity as a nonfiction writer. Time management is crucial for maximizing efficiency and achieving your writing goals. Let's delve into some valuable strategies to help you manage your time and increase productivity.

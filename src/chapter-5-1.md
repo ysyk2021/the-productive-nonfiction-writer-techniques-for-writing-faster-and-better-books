@@ -1,4 +1,4 @@
-Chapter 9: Importance of Developing a Writing Routine
+Importance of Developing a Writing Routine
 =====================================================
 
 In this chapter, we will explore the significance of developing a consistent writing routine for nonfiction writers. Establishing a regular writing practice can enhance productivity, improve writing skills, and foster creativity. Let's delve into the benefits and strategies of developing a writing routine.
