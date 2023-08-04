@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of productivity in nonfiction writing](chapter-1-1.md)
-  - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Setting Writing Goals](chapter-2.md)
   - [Benefits of setting writing goals](chapter-2-1.md)
   - [Techniques for setting achievable writing goals](chapter-2-2.md)
