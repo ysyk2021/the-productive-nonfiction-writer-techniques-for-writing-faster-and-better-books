@@ -1,5 +1,3 @@
-Benefits of Setting Writing Goals
-============================================
 
 Setting clear and specific goals is a powerful tool for enhancing your productivity and improving the quality of your nonfiction writing. In this chapter, we will explore the numerous benefits that arise from setting writing goals and how they can propel you towards becoming a more productive and successful nonfiction writer.
 

@@ -1,5 +1,3 @@
-Chapter 7: Improving Writing Quality
-====================================
 
 Improving writing quality is a goal shared by many nonfiction writers. In this chapter, we will explore techniques and strategies for improving writing quality.
 
@@ -22,5 +20,4 @@ Conclusion
 ----------
 
 Improving writing quality requires a combination of techniques and strategies, such as using active voice, eliminating redundancy, varying sentence structure, showing instead of telling, effective editing and revising, and seeking feedback from others. By following the examples of successful writers and utilizing effective techniques and strategies, aspiring nonfiction writers can improve the overall quality of their work and engage and inform their readers. Remember that improving writing quality takes time and effort, but with consistent practice and attention to detail, you can produce high-quality nonfiction writing.
-
 

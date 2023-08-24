@@ -1,5 +1,3 @@
-Summary of Key Points
-=============================================
 
 Becoming a productive nonfiction writer requires discipline, dedication, and a willingness to continually learn and grow. In this book, we have explored numerous techniques and strategies for writing faster and better nonfiction books. Here is a summary of the key points covered in each chapter:
 

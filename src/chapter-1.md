@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Welcome to "The Productive Nonfiction Writer: Techniques for Writing Faster and Better Books." This book is designed to provide aspiring nonfiction writers with practical techniques and strategies for increasing their productivity, improving the quality of their writing, and achieving success in the competitive world of nonfiction publishing.
 

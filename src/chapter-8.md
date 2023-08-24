@@ -1,5 +1,3 @@
-Chapter 8: Collaborating with Others
-====================================
 
 Collaborating with others can bring many benefits to the nonfiction writing process. In this chapter, we will explore the importance of collaborating with others in nonfiction writing, strategies for effective collaboration with editors, designers, and other professionals, and examples of successful collaborations in nonfiction writing.
 

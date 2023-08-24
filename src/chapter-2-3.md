@@ -1,5 +1,3 @@
-Examples of Successful Nonfiction Writers Who Set and Achieved Writing Goals
-=======================================================================================
 
 Setting and achieving writing goals is a common practice among successful nonfiction writers. In this chapter, we will explore the stories of several accomplished authors who utilized goal-setting techniques to propel their writing careers. By examining their journeys, we can gain inspiration and valuable insights into how setting and achieving writing goals can lead to success.
 

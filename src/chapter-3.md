@@ -1,5 +1,3 @@
-Chapter 3: Planning Your Writing
-================================
 
 Planning your writing is a crucial step in becoming a productive nonfiction writer. In this chapter, we will explore techniques for planning your writing, outlining strategies for nonfiction writers, and tips for organizing research and notes.
 

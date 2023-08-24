@@ -1,5 +1,3 @@
-Chapter 5: Developing a Writing Routine
-=======================================
 
 Developing a writing routine is essential for becoming a productive nonfiction writer. In this chapter, we will explore the importance of developing a writing routine, techniques for creating a writing routine that works for you, and case studies on individuals who developed a strong writing routine.
 

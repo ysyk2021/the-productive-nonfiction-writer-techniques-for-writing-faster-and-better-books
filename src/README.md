@@ -1,4 +1,3 @@
-# Introduction
 
 Writing nonfiction books can be a daunting task, especially when it comes to finding the time and motivation to write. However, with the right techniques and strategies, anyone can become a productive nonfiction writer.
 

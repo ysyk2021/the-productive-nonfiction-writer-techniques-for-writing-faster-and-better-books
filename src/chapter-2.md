@@ -1,5 +1,3 @@
-Chapter 2: Setting Writing Goals
-================================
 
 Setting writing goals is an essential aspect of becoming a productive nonfiction writer. In this chapter, we will explore the benefits of setting writing goals, techniques for setting achievable writing goals, and examples of successful nonfiction writers who set and achieved writing goals.
 

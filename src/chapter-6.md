@@ -1,5 +1,3 @@
-Chapter 6: Increasing Writing Speed
-===================================
 
 Writing faster is a crucial aspect of becoming a productive nonfiction writer. In this chapter, we will explore techniques for increasing writing speed, tips for improving typing speed and accuracy, and examples of individuals who successfully increased their writing speed.
 

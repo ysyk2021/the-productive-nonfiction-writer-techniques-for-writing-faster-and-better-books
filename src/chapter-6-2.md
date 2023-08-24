@@ -1,5 +1,3 @@
-Tips for Improving Typing Speed and Accuracy
-=======================================================
 
 In this chapter, we will explore various techniques and tips to help you improve your typing speed and accuracy as a nonfiction writer. By developing efficient typing skills, you can increase your productivity and produce high-quality written content more effectively.
 

@@ -1,5 +1,3 @@
-Chapter 4: Overcoming Writer's Block
-====================================
 
 Writer's block can be a frustrating and common experience for nonfiction writers. In this chapter, we will explore common causes of writer's block, strategies for overcoming it, and techniques for staying motivated and productive during difficult times.
 

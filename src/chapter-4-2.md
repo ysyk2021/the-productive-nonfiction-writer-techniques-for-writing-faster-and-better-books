@@ -1,5 +1,3 @@
-Strategies for Overcoming Writer's Block
-====================================================
 
 Writer's block is a common challenge that can hinder productivity and creativity. Fortunately, there are several effective strategies to overcome this obstacle and get back on track with your nonfiction writing. In this chapter, we will explore various techniques to help you conquer writer's block and continue writing faster and better books.
 

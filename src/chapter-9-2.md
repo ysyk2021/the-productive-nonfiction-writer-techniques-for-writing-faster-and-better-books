@@ -1,5 +1,3 @@
-Strategies for Avoiding Burnout and Maintaining Balance
-==================================================================
 
 In this chapter, we will explore effective strategies for avoiding burnout and maintaining a healthy work-life balance as a nonfiction writer. Writing can be demanding and intense, making it crucial to prioritize self-care and prevent burnout. Let's delve into some valuable techniques to help you maintain balance and prevent exhaustion.
 
